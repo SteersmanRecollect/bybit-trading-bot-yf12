@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with bybit trading bot professional Strategy | leverage-management & multi-exchange-support, the #1 bybit trading bot. Includes leverage-management and
 
 
 
